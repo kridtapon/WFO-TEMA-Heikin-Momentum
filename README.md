@@ -1,0 +1,1 @@
+# WFO-TEMA-Heikin-Momentum
